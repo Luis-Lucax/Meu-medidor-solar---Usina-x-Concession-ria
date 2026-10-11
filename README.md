@@ -1,0 +1,1 @@
+# Meu-medidor-solar---Usina-x-Concession-ria
